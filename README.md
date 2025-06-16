@@ -17,6 +17,7 @@ I'm a **high school senior student** studying **Information Technology** in Ista
 - GitHub: https://github.com/MeryemTechPro
 - LinkedIn: https://www.linkedin.com/in/meryem%c3%b6nl%c3%bck/
 - Email: onlukmeryem@gmail.com
+- Linktree - Tüm Hesaplarım: https://linktr.ee/meryemmonluk
 
 ---
 ⭐ **Feel free to check out my repositories and give a star if you like them!** 🚀
